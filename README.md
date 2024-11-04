@@ -1,1 +1,1 @@
-# Amazon_clone
+https://gulzaralice1.github.io/amazon2/
